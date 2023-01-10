@@ -1,4 +1,5 @@
 # CURRICULUM VITAE
+## 🌐Ver Curriculum aqui:
 https://acortar.link/beCBaP
 
 ## 🌐 Medios Sociales / Contactos:
